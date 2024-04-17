@@ -12,3 +12,4 @@
 3) Juice the citrus
 4) Mix 1 tsp of salt with 1.5 tsp of vinegar
 5) Chop the coriander
+6) Mix everything in a bowl
