@@ -9,3 +9,4 @@
 1) Finely dice the red onion
 2) Deseed the capcicum
 3) Juice the citrus
+4) Mix 1 tsp of salt with 1.5 tsp of vinegar
